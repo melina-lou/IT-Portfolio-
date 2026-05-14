@@ -1,4 +1,4 @@
-# IT-Portfolio-
+# IT-Portfolio
 
 **Français** | [English](#english-version)
 
